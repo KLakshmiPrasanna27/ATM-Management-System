@@ -184,7 +184,7 @@ Add screenshots of the following pages:
 **Kasarla Lakshmi Prasanna**
 
 * GitHub: https://github.com/KLakshmiPrasanna27
-* LinkedIn: https://linkedin.com/in/lakshmi-prasanna-reddy-81b1502a4
+* LinkedIn: https://www.linkedin.com/in/kasarla-lakshmi-prasanna-81b1502a4
 
 ---
 
